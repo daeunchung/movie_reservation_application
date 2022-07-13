@@ -162,8 +162,8 @@
 - 서지훈: jhseo03131@gmail.com
 - 손은성: dmstjd3256@naver.com
 - 오재곤: opve555@gmail.com
-- 정다은: opve555@gmail.com
-- 최형준: opve555@gmail.com
+- 정다은: jul12230103@gmail.com
+- 최형준: chj5156@naver.com
 
 <br>
 <br>
